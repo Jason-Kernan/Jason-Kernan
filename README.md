@@ -1,1 +1,1 @@
-Hello, my name is Jason Kernan. I'm currently an ERP Systems analyst for Fidelis Partners.
+ERP Systems Analyst for Fidelis Partners
